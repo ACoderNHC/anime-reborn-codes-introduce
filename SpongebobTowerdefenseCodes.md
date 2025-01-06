@@ -1,6 +1,6 @@
 # SpongeBob Tower Defense Codes
 
-![SpongeBob Tower Defense Codes](https://spongebob-td-codes.com/favicon.svg)
+![SpongeBob Tower Defense Codes](https://spongebobtowerdefensecodes.info/favicon.svg)
 
 A dedicated website providing the latest working codes for SpongeBob Tower Defense on Roblox. Get instant access to free rewards and boosts!
 
